@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Zentozzz.github.io/rsschool-cv/cv
